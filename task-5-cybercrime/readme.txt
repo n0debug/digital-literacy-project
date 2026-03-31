@@ -1,1 +1,1 @@
-
+Cybercrime Awareness Developed a case study on UPI fraud explaining how such scams occur and their impact. Also created a prevention checklist with practical safety measures, including reporting through cybercrime.gov.in and helpline 1930, to promote awareness and responsible digital behaviour.
