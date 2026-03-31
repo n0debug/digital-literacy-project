@@ -1,1 +1,1 @@
-
+Email Etiquette Drafted two professional emails: one for requesting an assignment extension and another for applying for an internship. Also created a social media do’s and don’ts checklist to demonstrate responsible online behaviour and digital communication practices.
